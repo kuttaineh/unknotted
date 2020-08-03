@@ -10,7 +10,7 @@ How is a system of 40 hour work weeks maintained, with a normative virtue to wor
 # Means of Production
 There exists a materialist reductivist construct, which experience proves useful for the purpose of dividing the groups held subject to it. Side-stepping oneself from said construct allows one to see the means of production as defined by the Classical Liberals who recognized the three components as natural resources, labour, and durable capital goods.
 
-# It’s compliance to too many working hours which overspends the Earth. 
+# Compliance to too many working hours which overspends the Earth. 
 The compliance of what would otherwise be individual enterprisers—turned into workers, enables through taxation and standing military, the taking of natural resources from other nations. And the overall process treats labor itself, both in the conquering and the conquered nation, as but part of what rightfully is natural resources only.
 
 # Priorities
