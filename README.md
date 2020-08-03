@@ -1,5 +1,5 @@
-# definition
-Present situation and disentaglements
+# defined:
+Present situation and its disentaglements
 
 # If we’re not defining the future someone else is.
 The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider all the advantages which authors have written into state and federal laws. From where does the power to set and grow government come? As time progresses does power remain with families and communities or does it migrate into the state enabled legal fictions which are corporations and states?
