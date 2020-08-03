@@ -14,7 +14,7 @@ The compliance of what would otherwise be individual enterprisers—turned into 
 # Means of Production
 There exists a materialist reductivist construct, which experience and survey proves useful for the purpose of dividing the groups held subject to it. Side-stepping oneself from said construct allows one to see the means of production as defined by the Classical Liberals who recognized the three components as natural resources, labour, and durable capital goods.
 
-# DFTBA
+# Priorities
 “People were created to be loved. Things were created to be used. The reason why the world is in chaos, is because things are being loved en people are being used.”
 
 ― John Green, Looking for Alaska
