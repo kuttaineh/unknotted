@@ -1,4 +1,4 @@
-# Provided:
+# We can war in a game of dominance, Or:
 Present situation and its disentaglement
 
 # If we’re not defining the future someone else is.
