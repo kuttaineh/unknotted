@@ -2,7 +2,7 @@
 Present situation and its disentaglements
 
 # If we’re not defining the future someone else is.
-The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider all the advantages which authors have written into state and federal laws. From where does the power to set and grow government come? As time progresses does power remain with families and communities or does it migrate into the state enabled legal fictions which are corporations and states?
+The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider all the advantages which authors have written into state and federal laws. From where does the power to set and grow government come? As time progresses does the locus of control remain with individuals, families, and communities or does it migrate into the state enabled legal fictions which are corporations and states?
 
 # Who set the work 'em 'til they’re dead order? 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after the economist from four score years prior correctly pointed out that by now we’d only need to work 4 for the same standard of living?
