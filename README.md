@@ -19,7 +19,7 @@ The compliance of what would otherwise be individual enterprisers—turned into 
 >The reason why the world is in chaos, 
 >is because things are being loved en people are being used.”
 >
->― John Green, Looking for Alaska
+>― John Green, [Looking for Alaska](https://g.co/kgs/1c9M6h)
 
 # The End
 Focus needs to be on the actual means; and it must not be divided into the oppositional reductionist form so that greater focus may exist on the source of all and the love of all.
