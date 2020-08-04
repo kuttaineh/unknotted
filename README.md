@@ -21,5 +21,5 @@ The compliance of what would otherwise be individual enterprisers—turned into 
 >
 >― John Green, [Looking for Alaska](https://g.co/kgs/1c9M6h)
 
-# The End
+# Conclusion
 Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
