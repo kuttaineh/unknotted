@@ -8,7 +8,7 @@ The Classical Liberals sought to remove all forms of privilege. Governments are 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after the economist from four score years prior correctly pointed out that by now we’d only need to work 4 for the same standard of living?
 
 # Means of Production
-There exists a materialist reductivist construct, which experience proves useful for the purpose of dividing the groups held subject to it. Side-stepping oneself from said construct allows one to see the means of production as defined by the Classical Liberals who recognized the three components of productino as natural resources, labour, and durable capital goods.
+There exists a materialist reductivist construct, which experience proves useful for the purpose of dividing the groups held subject to it. Side-stepping from said construct allows one to see the means of production as defined by the Classical Liberals who recognized the three components of productino as natural resources, labour, and durable capital goods.
 
 # Compliance to too many working hours overspends the Earth. 
 The compliance of what would otherwise be individual enterprisers—turned into workers, enabled through taxation and standing military is the taking of natural resources from other nations. And the overall process treats labors, both in the conquering and the conquered nation, as part of what rightfully is natural resources only.
