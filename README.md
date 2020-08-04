@@ -1,4 +1,4 @@
-# defined:
+# Provided:
 Present situation and its disentaglements
 
 # If we’re not defining the future someone else is.
