@@ -14,7 +14,10 @@ There exists a materialist reductivist construct, which experience proves useful
 The compliance of what would otherwise be individual enterprisers—turned into workers, enabled through taxation and standing military is the taking of natural resources from other nations. And the overall process treats labor itself, both in the conquering and the conquered nation, as part of what rightfully is natural resources only.
 
 # Priorities
->“People were created to be loved. Things were created to be used. The reason why the world is in chaos, is because things are being loved en people are being used.”
+>“People were created to be loved.
+>Things were created to be used.
+>The reason why the world is in chaos, 
+>is because things are being loved en people are being used.”
 >
 >― John Green, Looking for Alaska
 
