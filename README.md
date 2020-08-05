@@ -5,7 +5,7 @@ Present situation and its disentaglement
 The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider all the advantages which authors have written into state and federal laws. From where does the power to set and grow government come? As time progresses does the locus of control remain with individuals, families, and communities or does it migrate into the state enabled legal fictions which are corporations and states?
 
 ### Who maintains the work 'em 'til they’re dead order? 
-How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after the economist from four score years prior correctly pointed out that by now we’d only need to work 15 for the same standard of living?
+How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after the economist four score and ten years ago correctly pointed out that by now we’d only need to work 15 for the same standard of living?
 
 ### Means of Production
 There exists a materialist reductivist construct, which experience proves useful for the purpose of dividing the groups held subject to it. Side-stepping from said construct allows one to see the means of production as defined by the Classical Liberals who recognized the three components of production as **natural resources**, **labor**, and **durable capital goods**.
