@@ -1,4 +1,4 @@
-### We can war in wounding, thieving, and deadly games of dominance, Or:
+### We can play games of dominance, Or:
 Present situation and its disentaglement
 
 ### If we’re not defining the future someone else is.
