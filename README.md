@@ -1,5 +1,5 @@
 ### People can play games of dominance; those doing so usually already know how to win.
-Plays for control and posession result in poverty, injury, and death. We can focus on the quality of everyone's life equally by looking into the components necessary to live wholly and securely in order to insure the case. The present situation and its disentaglement:
+Plays for control and posession result in poverty, injury, and death. Instead, we can focus on the quality of everyone's life equally by looking into the components necessary to live securely whole. The present situation and its disentaglement:
 
 ### If we’re not defining the future someone else is.
 The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider all the advantages which authors have written into state and federal laws. From where does the power to set and grow government come? As time progresses does the locus of control remain with individuals, families, and communities or does it migrate into the state enabled legal fictions which are corporations and states?
