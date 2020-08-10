@@ -7,7 +7,7 @@ The Classical Liberals sought to remove all forms of privilege. Governments are 
 ### Who maintains the work 'em 'til they’re dead order? 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d only need to work 15 for the same standard of living?
 
-### Disregarding the Construct
+### Selecting the appropriate construct
 There exists a materialist reductivist construct which history proves is useful for the purpose of dividing the groups held subject to it. Disregarding the construct allows one to see the means of production as **natural resources**, **labor**, and **durable capital goods**. Through work and purchase decisions our way is determined.
 
 ### Compliance to too many working hours overspends the Earth. 
