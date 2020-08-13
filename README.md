@@ -26,7 +26,7 @@ Government needs to remove its practice of drawing revenue from labor and durabl
 Chartered counties can become the one source responsible for tax collection while the state and federal revenue services are eliminated. Revenues collected locally can then be split into the county, state, and federal balance sheets. County, State, and Federal governments have to be held to serve people as equals. And these shall have to live within their means—just as people themselves.
 
 ### Keys to success
-We must recognize natural resources as our shared inheritance: by mutual right—we're each entitled to an equal share. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. Furthermore, trade must be free.
+We must recognize natural resources as our shared inheritance: by mutual right—we're each entitled to an equal share. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. Trade must be free.
 
 ### Conclusion
 Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
