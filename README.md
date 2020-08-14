@@ -1,4 +1,4 @@
-By shifting taxes off incomes, personal property, and trade, on to natural resource use two surprising benefits result.
+The barriers to work and hire, buy and sell have become artifically too high. By shifting taxes off incomes, personal property, and trade, on to natural resource use two surprising benefits result.
 
 ### People can play games of dominance; those doing so usually already know how to win.
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life equally by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
