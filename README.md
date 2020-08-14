@@ -1,4 +1,4 @@
-The barriers to work and hire, buy and sell have become artifically too high. By shifting taxes off incomes, personal property, and trade, on to natural resource use two surprising benefits result.
+The barriers to work and hire, buy and sell have become artifically too high. By shifting taxes off incomes, personal property, and trade, on to natural resource use three surprising benefits result.
 
 ### People can play games of dominance; those doing so usually already know how to win.
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life equally by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
@@ -29,7 +29,7 @@ Government needs to remove its practice of drawing revenue from labor and durabl
 What people do to make income and how they spend it is not the business of government by the people; how natural resources are distributed is government's business. We must recognize natural resources as our shared inheritance: by mutual right—we're each entitled to an equal share. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges on non-human resource use.
 
 ### Benefits
-By taking this direction people will stop being treated as resources by their governments. Natural resources will become more efficiently utilized.
+By taking this direction people will stop being treated as a resource= by their governments. Natural resources will become more efficiently utilized. [Economic activity rises](https://schalkenbach.org/file-11/henry-george/henry-george-100-years-later/).
 
 ### Conclusion
 Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
