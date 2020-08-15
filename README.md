@@ -13,7 +13,7 @@ How is a system of 40 hour work weeks maintained, with a normative virtue to wor
 There exists a materialist reductivist construct which history proves is useful for the purpose of dividing the groups held subject to it. Disregarding the construct allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Through work and purchase decisions our way is determined.
 
 ### Compliance to too many working hours overspends the Earth. 
-The compliance of what would otherwise be free human beings—turned laborers, enabled through taxation, and standing military—is the taking of natural resources from other nations contributing to an [annual over-expendature of the Earth](https://www.overshootday.org/about-earth-overshoot-day/). The functional process results in the handling of laborers, both in the conquering and the conquered nations, merely as though they were part of the means which is natural resources only.
+The compliance of what would otherwise be free human beings, turned laborers enabling standing military through taxation, is the taking of natural resources from other nations contributing to an [annual over-expendature of the Earth](https://www.overshootday.org/about-earth-overshoot-day/). The functional process results in the handling of laborers, both in the conquering and the conquered nations, merely as though they were part of the means which is natural resources only.
 
 ### Priorities
 >“People were created to be loved.
