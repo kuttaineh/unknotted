@@ -9,8 +9,8 @@ The Classical Liberals sought to remove all forms of privilege. Governments are 
 ### Who maintains the work 'em 'til they’re dead order? 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d only need to work 15 for the same standard of living?
 
-### Selecting the appropriate dialectic
-There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing the groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Through work and purchase decisions our way is determined.
+### Selecting the appropriate perspective
+There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing the groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Through work and purchase decisions our way is determined. So war and weaponry, life and livingry – the path is ours to choose.
 
 ### Compliance to too many working hours overspends the Earth. 
 The compliance of what would otherwise be free human beings, turned laborers enabling standing military via taxation, is the taking of natural resources from other nations contributing to an [annual over-expendature of the Earth](https://www.overshootday.org/about-earth-overshoot-day/). The process results in the handling of these beings, both in the conquering and the conquered nations, merely as though they were but part of the means which is natural resources.
