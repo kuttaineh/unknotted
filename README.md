@@ -33,7 +33,7 @@ What people do to make income and how they spend it is not the business of gover
 Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any human use beyond their inheritance share.
 
 ### Benefits
-By taking this direction people will stop being treated as a resource by their governments. Natural resources will become more efficiently utilized. [Economic activity rises](https://schalkenbach.org/file-11/henry-george/henry-george-100-years-later/).
+By taking this direction people will stop being treated as a resource by their governments. Natural resources will become more efficiently utilized. [Economic activity rises](https://schalkenbach.org/file-11/henry-george/henry-george-100-years-later/): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) showing when it where.
 
 ### Conclusion
 Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
