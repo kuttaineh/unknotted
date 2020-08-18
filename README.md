@@ -12,8 +12,8 @@ How is a system of 40 hour work weeks maintained, with a normative virtue to wor
 ### Selecting the appropriate perspective
 There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Work and purchase decisions determine our way. Tools to death, means to life – the path is ours to choose.
 
-### Compliance to too many working hours overspends the Earth. 
-The compliance of what would otherwise be free human beings, turned laborers enabling standing military via taxation, is the taking of natural resources from other nations. The process results in the handling of these beings, both in the conquering and the conquered nations, merely as though they were but part of the means which is natural resources.
+### Compliance to too much work depletes the being to the gain of a racketeering state. 
+The compliance of what would otherwise be free human beings, turned laborers enabling standing military via taxation, is the taking of natural resources from other nations. The process results in the handling of these beings, both in the conquering and the conquered nations, merely as though they were but part of the means which is natural resources. For details see [War is a Racket](https://feralhouse.com/war-is-a-racket/).
 
 ### Priorities
 >“People were created to be loved.
