@@ -30,7 +30,7 @@ The rent of natural resources is the best source of public income. What's common
 
 What people do to make income and how they spend it is not the business of government by the people; how natural resources are distributed is government's business. We must recognize the Earth as our shared inheritance. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. 
 
-Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any human use beyond their inheritance share.
+Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any human use past the inheritance share.
 
 ### Benefits
 By taking this direction people will stop being treated as a resource by their governments. Natural resources become more efficiently utilized. [Economic activity rises](https://schalkenbach.org/file-11/henry-george/henry-george-100-years-later/): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) proving the claim.
