@@ -28,7 +28,7 @@ Government needs to stop drawing revenue from labor and durable goods because th
 ### Keys to success
 The rent of natural resources is the most just source of public income. What's common doesn't need to be privatized and what's private doesn't need to be socialized.
 
-How people make income and how they spend it is not the business of government by the people; how natural resources are distributed is government's business. To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates under the principle that all shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. 
+How people make income and how they spend it is not the business of government by the people; how natural resources are distributed is government's business. To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any polution cleanup charges have to be collected. 
 
 Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any human use past the inheritance share.
 
