@@ -12,8 +12,8 @@ How is a system of 40 hour work weeks maintained, with a normative virtue to wor
 ### Selecting the appropriate perspective
 There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Work and purchase decisions determine our way. Tools for death and means to life – the path is ours to choose.
 
-### What happens when the dialectic is applied. 
-Compliance to the dialectic results in distractive fight for a monopoly of power. The benefits of labor become a prize for corporatists and socialists alike with the end result becoming the side which wins treating the human beings providing it as subjects to the ideology rather than individual human beings.
+### What happens when the dialectic is applied? 
+Compliance to the dialectic results in a distractive fight for a needless monopoly of power. The benefits of labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free human beings as subjects to an chaining ideology.
 
 ### Priorities
 >“People were created to be loved.
