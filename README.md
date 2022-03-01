@@ -39,4 +39,4 @@ Taxpayers need to be able to track where their tax dollars go in order so that t
 By taking this direction people will stop being treated as a resource by their governments. Natural resources become more efficiently utilized. [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
 ### Conclusion
-Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
+Focus needs to be on the actual means; and the people must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
