@@ -44,4 +44,4 @@ By taking this direction:
  * [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
 ### Conclusion
-Focus needs to be on the actual means; and the people must not be divided into the oppositional reductionist dialectic so that greater focus may rest upon the source of all and the work of the love of all.
+Attention needs to be on the actual means; and the people must not be divided into the oppositional reductionist dialectic so that greater focus may rest upon the source of all and the work of the love of all.
