@@ -33,7 +33,7 @@ The rent of natural resources is the most just source of public income. What's c
 
 How people make income and the fact that they trade is not the business of government by the people; how natural resources are distributed is government's business. To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. 
 
-Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any human use past the inheritance share.
+Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any single human use past the inheritance share.
 
 ### Benefits
 By taking this direction people will stop being treated as a resource by their governments. Natural resources become more efficiently utilized. [Economies improve](https://vimeo.com/51684828): here's [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
