@@ -36,7 +36,7 @@ How people make income and the fact that they trade is not the business of gover
 Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
 
 ### Benefits
-By taking this direction people will stop being treated as a resource by their governments. Natural resources become more efficiently utilized. [Economies improve](https://vimeo.com/51684828): here's [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
+By taking this direction people will stop being treated as a resource by their governments. Natural resources become more efficiently utilized. [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
 ### Conclusion
 Focus needs to be on the actual means; and the means must not be divided into the oppositional reductionist form so that greater focus may rest upon the source of all and the work of the love of all.
