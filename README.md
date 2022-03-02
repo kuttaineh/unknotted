@@ -44,4 +44,4 @@ By taking this direction:
  * [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
 ### Conclusion
-People must not be swayed by the oppositional reductionist pathology so that greater focus may rest upon the source of all and the work of the love of all.
+People must be fortified to not be swayed by oppositional reductionist pathology so that greater focus may rest upon the source of all and the work of the love of all.
