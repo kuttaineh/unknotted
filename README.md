@@ -1,7 +1,7 @@
 ### Capital is a tool, not the big end.
 The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow.
 
-The barriers to work and hire, buy and sell have become artifically too high. Shift taxes off incomes, personal property, & trade, on to natural resource use to witness three surprising benefits.
+The barriers to work and hire, buy and sell have become artifically too high. Shift taxes off incomes, personal property, & trade on to **natural resource use** to witness three surprising benefits.
 
 ### Governance by few or by all?
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life equally by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
