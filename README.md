@@ -20,6 +20,11 @@ There exists a materialist reductivist dialectic which history proves is useful 
 ### What happens when the dialectic is applied? 
 Compliance to the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free human beings as subjects to a chaining ideology.
 
+### A shared inheritance
+To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. 
+
+Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
+
 ### Priorities
 >“People were created to be loved.
 >Things were created to be used.
@@ -34,10 +39,6 @@ Until the services can be funded via the aforementioned revenue means: [FICA](ht
 
 ### Keys to success
 How people make income and the fact that they trade is not the business of government by the people. Meanwhile, ensuring all individuals' equality of opportunity, not outcome, is arguably within a government's purview. 
-
-To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. 
-
-Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
 
 What's common doesn't need to be privatized and what's private doesn't need to be socialized. The rent of natural resources is the most just source of public income.
 
