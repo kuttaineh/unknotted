@@ -15,7 +15,7 @@ From where does the power to set and grow government come? As time progresses do
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 for the same standard of living?
 
 ### Selecting the appropriate perspective
-There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Work and purchase decisions determine our way. 
+There exists a materialist reductivist dialectic which history proves is useful for the purpose of dividing and conquering groups held subject to it. Disregarding the dialectic allows one to see the means to living as **natural resources**, **labor**, and **durable capital goods**. Work and purchase decisions determine our way. 
 
 A tool for death or means to life – the path is ours to choose.
 
