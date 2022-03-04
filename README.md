@@ -25,7 +25,7 @@ Compliance to the dialectic results in a distractive fight for a needless monopo
 ### A shared inheritance
 To avoid war, we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity. The full value of natural resources made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. 
 
-Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Revenue therefore must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
+Taxpayers need to be able to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. So that people may be free, trade must be free. Therefore, revenue must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
 
 ### Priorities
 >“People were created to be loved.
