@@ -44,7 +44,7 @@ The full value of natural resources, beyond the inheritance share, made private 
 
 How people make income and the fact that they trade is not the business of government by the people. Meanwhile, ensuring all individuals' equality of opportunity, not outcome, is arguably within a government's purview. 
 
-What's common doesn't need to be privatized and what's private doesn't need to be socialized. The rent of natural resources is the most just source of public income.
+What's common doesn't need to be privatized. And what's private doesn't need to be socialized. The rent of natural resources is the most just source of public income.
 
 ### Benefits
 By taking this direction:
