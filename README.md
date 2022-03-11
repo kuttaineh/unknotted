@@ -9,7 +9,7 @@ Plays for control and possession result in inefficiency, injury, and premature d
 ### If we’re not defining the future, someone else is.
 The Classical Liberals sought to remove all forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider the lobbying industry. 
 
-From where does the power to set and grow government come? As time progresses does the locus of control remain with individuals, families, and communities or does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? The best government is the one where decisions are made at the most local competent level possible. 
+From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? The best government is the one where decisions are made at the most local competent level possible. 
 
 ### Who maintains the work 'em 'til they’re dead order? 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 for the same standard of living?
