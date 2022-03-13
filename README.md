@@ -44,7 +44,7 @@ Until the services can be funded via the aforementioned revenue means: [FICA](ht
 The full value of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
 
 ### What are the proper rolls of government and society?
-Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' equality of opportunity, not outcome, be within the domain of society and not government? 
+Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' economic opportunity be within the domain of society and not government? 
 
 ### Working principles
 What's common doesn't need to be privatized. And what's private doesn't need to be socialized. The rent of natural resources is the most just source of public income.
