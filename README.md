@@ -1,3 +1,5 @@
+_A labor of love, intended to open minds thinking about how to transition towards a just political economy._
+
 ### Capital is a tool, not the big end.
 The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow.
 
