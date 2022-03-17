@@ -1,7 +1,7 @@
 _This document is addressed to those thinking about how to transition towards a just [political economy](https://www.britannica.com/topic/political-economy)._
 
 ### Capital is a tool, not the big end.
-The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow.
+The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow. In other words: recognizing and preserving the [profit motive](https://www.investopedia.com/terms/p/profit-motive.asp) is essential.
 
 ### Dismantling barriers
 The barriers to work and hire, buy and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to **natural resource use** to witness three surprising benefits.
