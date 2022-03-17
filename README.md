@@ -49,7 +49,7 @@ The full value of natural resources, beyond the inheritance share, made private 
 Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' economic opportunity be within the domain of society, not government? 
 
 ### Working principles
-What's common doesn't need to be privatized. And what's private doesn't need to be socialized. The rent of natural resources is the most just source of public income.
+What's common doesn't need to be privatized. And what's private doesn't need to be socialized. The rent of natural resources beyond the inheritance share is the most just source of public income.
 
 ### Benefits
 By taking this direction:
