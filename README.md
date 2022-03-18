@@ -28,7 +28,7 @@ Compliance to the dialectic results in a distractive fight for a needless monopo
 To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
 
 ### Trade, Labor, and the Least Bad Tax
-So that people may be free, trade must be free—meaning free of sales tax and imposed tariffs. Likewise, people's labor must also be unencumbered by taxation. Therefore, revenue must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
+So that people may be free, trade must be free—meaning free of sales tax and imposed tariffs. Likewise, people's labor must also be unencumbered by taxation. Therefore, revenue must come via charges from that natural resource use which goes beyond any single or cooperative use past the inheritance share.
 
 ### Priorities
 >“People were created to be loved.
