@@ -4,7 +4,7 @@ _This document is addressed to those thinking about how to transition towards a 
 The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow. In other words: recognizing and preserving the [profit motive](https://www.investopedia.com/terms/p/profit-motive.asp) is essential.
 
 ### Dismantling barriers
-The barriers to work and hire, buy and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to **natural resource use** to witness three surprising benefits.
+The barriers to work and hire, buy and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to [**natural resource use**](https://www.progress.org/articles/land-rent-as-a-tax) to witness three surprising benefits.
 
 ### Governance by few or by all?
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
@@ -43,7 +43,7 @@ Government needs to stop drawing revenue from labor and durable goods because th
 Until the services can be funded via the aforementioned revenue means: [FICA](https://personal-finance.extension.org/what-is-fica-tax-and-how-is-it-calculated/) stays but sales, capital gains, property, and income tax except for that portion of rental income which comes from location-value, and tariffs need to be abolished.
 
 ### Keys to success
-The [full value](https://www.progress.org/articles/land-rent-as-a-tax) of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
+The [full value](http://www.wealthandwant.com/docs/Foldvary_Rent.html) of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
 
 ### What are the proper rolls of government and society?
 Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' economic opportunity be within the domain of society, not government? 
