@@ -25,7 +25,7 @@ There exists an oppositional reductivist [dialectic](http://www.crossroad.to/art
 Compliance to the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
 
 ### A shared inheritance
-To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their equal share of this inheritance in perpetuity.
+To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
 
 ### Trade, Labor, and the Least Bad Tax
 So that people may be free, trade must be free—meaning free of sales tax and imposed tariffs. Likewise, people's labor must also be unencumbered by taxation. Therefore, revenue must come via charges from that natural resource use which goes beyond any single human's use past the inheritance share.
