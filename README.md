@@ -10,7 +10,7 @@ The barriers to work and hire, buy and sell have become artificially too high. S
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
 
 ### How shall the social contract be defined?
-The [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) sought to remove forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider the lobbying industry. 
+Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider the lobbying industry. [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) seek to remove forms of privilege, especially that privilege enabled by the state.
 
 ### With regard to government
 From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? The best government is the one where [decisions](https://youtu.be/GD0moAiq22k) are made at the most local competent level possible. 
