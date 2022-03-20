@@ -28,7 +28,7 @@ There exists an oppositional reductivist [dialectic](http://www.crossroad.to/art
 Let us be in a world where work and purchasing decisions determine our way, where others aren't there to tax us for making decisions unless those decisions involve going beyond our inherent personal claim of right to a sufficient porition of nature: which is a shared inheritance amongst all living beings. 
 
 ### What happens when the dialectic is applied? 
-Compliance to the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
+Compliance with the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
 
 ### A shared inheritance
 To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
