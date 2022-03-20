@@ -9,7 +9,7 @@ The barriers to work and hire, buy and sell have become artificially too high. S
 ### Governance by few or by all?
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
 
-### If we’re not defining the future, someone else is.
+### How shall the social contract be defined?
 The Classical Liberals sought to remove forms of privilege. Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider the lobbying industry. 
 
 ### With regard to government
