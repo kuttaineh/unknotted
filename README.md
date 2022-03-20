@@ -10,7 +10,7 @@ The barriers to work and hire, buy and sell have become artificially too high. S
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
 
 ### How shall the social contract be defined?
-Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the third point then consider the lobbying industry. 
+Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the last statement then, consider the lobbying industry. 
 
 For the past several hundred years some of the [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) have been working to remove state enabled privilege. It's the hope of this author that expanding the recognized rights of wo|men to include an explicit portion of nature universally would resolve not only conflicts between people but also enable the same to always have a fallback position in any negotiation. For more on this set see https://bigthink.com/thinking/classical-liberalism-explained/.
 
