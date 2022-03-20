@@ -20,7 +20,7 @@ From where does the power to set and grow government come? As time progresses do
 In accordance to the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is the one where decisions are made at the most local competent level possible.
 
 ### Who sets the hours? 
-How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 for the same standard of living?
+How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 in order to maintain a decent standard of living?
 
 ### Choosing between death and life
 There exists an oppositional reductivist [dialectic](http://www.crossroad.to/articles2/05/dialectic.htm) which history proves useful for the purpose of dividing and conquering groups held subject to it. Disregarding the dialectic allows one to see, as the classic [moral philosophers](https://youtu.be/9TqJrvtt9ws) saw, the means to civilized living as the combination of **natural resources**, **labor**, and **durable capital goods**. 
