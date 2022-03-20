@@ -15,7 +15,9 @@ Governments are for establishing and maintaining order. States are about conferr
 For the past several hundred years some of the [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) have been working to remove state enabled privilege. It's the hope of this author that expanding the recognized rights of wo|men to include an explicit portion of nature universally would resolve not only conflicts between people but also enable the same to always have a fallback position in any negotiation. For more on this set see https://bigthink.com/thinking/classical-liberalism-explained/.
 
 ### With regard to government
-From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? The best government is the one where [decisions](https://youtu.be/GD0moAiq22k) are made at the most local competent level possible. 
+From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
+
+In accordance to the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is the one where decisions are made at the most local competent level possible.
 
 ### Who sets the hours? 
 How is a system of 40 hour work weeks maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 for the same standard of living?
