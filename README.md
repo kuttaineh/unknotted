@@ -14,7 +14,7 @@ Governments are for establishing and maintaining order. States are about conferr
 
 In order to excise the major state enabled privilege: Recognize a new inherent right to an explicit portion of nature, or the value thereof, universally. This would not only resolve particular teritorially conflicts between people but also would enable the same to always have a fallback position in any negotiation. 
 
-For the record: the idea above is proposed out of the tradition of classical, not social, liberalism; for more about that set, see the article [Classical liberalism and three of its founders: explained](https://bigthink.com/thinking/classical-liberalism-explained/) and/or the video [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
+For the record: the idea above is proposed out of the tradition of classical, not social, liberalism; see [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
 ### With regard to government
 From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
