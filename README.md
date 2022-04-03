@@ -70,4 +70,4 @@ People must be fortified to not be swayed by oppositional reductionist pathology
 
 Copyright © 2020-2022 Rammy N. Kuttaineh
 
-Author grants anyone explicit permission to: read and consider, reference, and provide feedback.
+Author grants everyone explicit permission to: read in order to consider, reference https://github.com/kuttaineh/unknotted, and provide feedback.
