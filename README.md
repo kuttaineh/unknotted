@@ -12,7 +12,7 @@ Plays for control and possession result in inefficiency, injury, and premature d
 ### How shall the social contract be defined?
 Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the last statement then, consider the lobbying industry. 
 
-For several hundred years some [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) have been working to remove state enabled privilege. It's the hope of this author that expanding the recognized rights of wo|men to include an explicit portion of nature universally would resolve not only conflicts between people but also enable the same to always have a fallback position in any negotiation. For more, see [Classical liberalism and three of its founders: explained](https://bigthink.com/thinking/classical-liberalism-explained/).
+For several hundred years some [Classical Liberals](https://youtu.be/iU-8Uz_nMaQ) have been working to remove state enabled privilege. Recognizing a new inherent right to an explicit portion of nature universally would resolve not only conflicts between people but also enable the same to always have a fallback position in any negotiation. For more, see [Classical liberalism and three of its founders: explained](https://bigthink.com/thinking/classical-liberalism-explained/).
 
 ### With regard to government
 From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
