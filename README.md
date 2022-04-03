@@ -12,7 +12,7 @@ Plays for control and possession result in inefficiency, injury, and premature d
 ### How shall the social contract be defined?
 Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the last statement then, consider the lobbying industry. 
 
-The next major step in removing state enabled privilege: Recognizing a new inherent right to an explicit portion of nature, or the value thereof, universally would not only resolve particular teritorially conflicts between people but also would enable the same to always have a fallback position in any negotiation. 
+In order to excise the major state enabled privilege: Recognize a new inherent right to an explicit portion of nature, or the value thereof, universally. This would not only resolve particular teritorially conflicts between people but also would enable the same to always have a fallback position in any negotiation. 
 
 For the record: the idea above is proposed out of the tradition of classical, not social, liberalism; for more about that set, see the article [Classical liberalism and three of its founders: explained](https://bigthink.com/thinking/classical-liberalism-explained/) and/or the video [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
