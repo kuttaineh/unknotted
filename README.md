@@ -1,6 +1,6 @@
 _This document is addressed to those thinking about how to transition towards a just [political economy](https://www.britannica.com/topic/political-economy)._
 
-### Capital is a tool, not the big end.
+## Capital is a tool, not the big end.
 The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of natural flow. In other words: recognizing and preserving the [profit motive](https://www.investopedia.com/terms/p/profit-motive.asp) is essential.
 
 ### Dismantling barriers
@@ -16,7 +16,7 @@ In order to excise the major state enabled privilege that is [land monopoly](htt
 
 For the record: the idea above is proposed out of the tradition of classical, not social, liberalism — which in reality is the historically philosophical basis to contemporary conservatism; see [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
-### With regard to government
+## With regard to government
 From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
 
 In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is the one where decisions are made at the most local competent level possible.
@@ -32,7 +32,7 @@ Let us be in a world where work and purchasing decisions determine our way, wher
 ### What happens when the dialectic is applied? 
 Compliance with the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
 
-### A shared inheritance
+## A shared inheritance
 To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
 
 ### Trade, Labor, and the Least Bad Tax
@@ -53,7 +53,7 @@ Until the services can be funded via the aforementioned revenue means: [FICA](ht
 ### Keys to success
 The [full value](http://www.wealthandwant.com/docs/Foldvary_Rent.html) of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
 
-### What are the proper rolls of government and society?
+## What are the proper rolls of government and society?
 Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' economic opportunity be within the realm of societies, not government? 
 
 ### Working principles
