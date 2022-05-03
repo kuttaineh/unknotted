@@ -44,7 +44,7 @@ So that people may be free, trade must be free—meaning free of sales tax and i
 >The reason why the world is in chaos, 
 >is because things are being loved en people are being used.”
 >
->― John Green, [Looking for Alaska](https://g.co/kgs/1c9M6h)
+>― John Green, [Looking for Alaska](https://engine.presearch.org/search?q=Looking+for+Alaska)
 
 Government needs to stop drawing revenue from labor and durable goods because the act cuts into the expression, production, and trade of each. In order not to incur a [dead-weight loss](https://www.youtube.com/watch?v=-mEn9zxQ0Q0) in the economy, government shall have to instead seek its funds from appropriately assessed natural resource extraction fees, [pigovian](https://www.investopedia.com/terms/p/pigoviantax.asp#:~:text=A%20Pigovian%20(Pigouvian)%20tax%20is,of%20the%20product's%20market%20price.), and location-value taxation. 
 
