@@ -61,7 +61,7 @@ What's common doesn't need to be privatized. And what's private doesn't need to 
 
 ### Benefits
 By taking this direction:
- * People will stop being treated as a resource by their governments. 
+ * People's labor will stop being treated as a resource by their governments. 
  * Natural resources become more efficiently utilized. 
  * [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
