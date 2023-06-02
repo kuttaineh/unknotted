@@ -27,7 +27,7 @@ How is a system of [so many working hours](https://everhour.com/blog/average-wor
 ### Choosing between death and life
 There exists an oppositional reductivist [dialectic](http://www.crossroad.to/articles2/05/dialectic.htm) which history proves useful for the purpose of dividing and ruling groups held subject to it. Disregarding the dialectic allows one to see, as the classic [moral philosophers](https://youtu.be/9TqJrvtt9ws) saw, the means to the material portion of civilized living as the combination of **natural resources**, **labor**, and **durable capital goods**. 
 
-Let us be in a world where work and purchasing decisions determine our way, where others aren't there to tax us for making decisions unless those decisions involve going beyond our [inherent personal claim of right](https://everipedia.org/Lockean_proviso](https://plato.stanford.edu/entries/libertarianism/#PowerApp) to a portion of nature: which is a shared inheritance amongst all living beings. 
+Let us be in a world where work and purchasing decisions determine our way, where others aren't there to tax us for making decisions unless those decisions involve going beyond our [inherent personal claim of right](https://plato.stanford.edu/entries/libertarianism/#PowerApp) to a portion of nature: which is a shared inheritance amongst all living beings. 
 
 ### What happens when the dialectic is applied? 
 Compliance with the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
