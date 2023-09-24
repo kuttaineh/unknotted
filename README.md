@@ -19,7 +19,7 @@ For the record: the idea above is proposed out of the tradition of classical, no
 ## With regard to government
 From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
 
-In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is the one where decisions are made at the most local competent level possible.
+In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is one where decisions are made at the most local competent level possible.
 
 ### Time management 
 How is a system of [so many working hours](https://everhour.com/blog/average-working-hours/) maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://www.newyorker.com/magazine/2014/05/26/no-time#:~:text=It%20was%20titled%20%E2%80%9CEconomic%20Possibilities,to%20worry%20about%20making%20money.) generations ago pointed out that by now we’d barely need to work 15 in order to maintain a decent standard of living?
