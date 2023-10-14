@@ -71,3 +71,6 @@ People must be fortified to not be swayed by oppositional reductionist pathology
 Copyright © 2020-2023 Rammy N. Kuttaineh
 
 Author encourages others to: carefully read, share https://github.com/kuttaineh/unknotted, and provide feedback.
+
+# Acknowledgement
+This would not have been possible without God, Hilaire Belloc, G.K.Chesterton, Henry George, [Dan](https://geolib.com/sullivan.dan/commonrights.html) [Sullivan](http://www.savingcommunities.org/), Fred E. Foldvary, Thomas Hockman, and many others. Thank you
