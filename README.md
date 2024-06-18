@@ -65,7 +65,7 @@ By taking this direction:
  * Natural resources become more efficiently utilized. 
  * [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
 
-### Conclusion
+### Concluding remarks
 People must be fortified to not be swayed by oppositional reductionist pathology so that focus may rest upon the source of all and also so that energy may not be diverted from the work through which folk actualize their purpose(s).
 
 Copyright © 2020-2023 Rammy N. Kuttaineh
