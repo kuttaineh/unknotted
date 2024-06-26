@@ -51,7 +51,7 @@ Government needs to stop drawing revenue from labor and durable goods because th
 Until the services can be funded via the aforementioned revenue means: [FICA](https://personal-finance.extension.org/what-is-fica-tax-and-how-is-it-calculated/) stays but sales, capital gains, property, and income tax except for that portion of rental income which comes from location-value, and tariffs need to be abolished.
 
 ### Keys to success
-The [full value](http://www.wealthandwant.com/docs/Foldvary_Rent.html) of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
+The [full value](https://archive.is/p2jZb) of natural resources, beyond the inheritance share, made private through extraction fee, resource lease agreement, and any actual pollution cleanup charges have to be collected. Additionally, taxpayers must have an easy to use tool enabling them to track where their tax dollars go in order so that the same are enabled to determine the appropriate size of government. 
 
 ## What are the proper rolls of government and society?
 Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, shouldn't ensuring all individuals' economic opportunity be within the realm of societies, not government? 
