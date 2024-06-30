@@ -68,7 +68,7 @@ By taking this direction:
 ### Concluding remarks
 People must be fortified to not be swayed by oppositional reductionist pathology so that focus may rest upon the source of all and also so that energy may not be diverted from the work through which folk actualize their purpose(s).
 
-Copyright © 2020-2024 Rammy N. Kuttaineh
+Copyright © 2024 Rammy N. Kuttaineh
 
 Author encourages others to: carefully read, share https://github.com/kuttaineh/unknotted, and provide feedback.
 
