@@ -73,4 +73,4 @@ Copyright © 2024 Rammy N. Kuttaineh
 Author encourages others to: carefully read, share https://github.com/kuttaineh/unknotted, and provide feedback.
 
 # Acknowledgement
-This would not have happened without the Creator, Hilaire Belloc, G.K. Chesterton, Henry George, [Dan](https://geolib.com/sullivan.dan/commonrights.html) [Sullivan](https://www.savingcommunities.org/#core), Fred E. Foldvary, Thomas Hockman, and many others. Thank you
+This would not have happened without the Creator, Hilaire Belloc, G.K. Chesterton, Elizabeth Magie, Henry George, [Dan](https://geolib.com/sullivan.dan/commonrights.html) [Sullivan](https://www.savingcommunities.org/#core), Fred E. Foldvary, Thomas Hockman, and many others. Thank you
