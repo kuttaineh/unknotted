@@ -63,7 +63,7 @@ What's common doesn't need to be privatized. And what's private doesn't need to 
 By taking this direction:
  * People's labor will stop being treated as collateral by their governments. 
  * Natural resources become more efficiently utilized. 
- * [Economies improve](https://vimeo.com/51684828): here are [28 case studies](https://www.progress.org/articles/where-a-tax-reform-has-worked) which prove it.
+ * [Economies improve](https://vimeo.com/51684828): here are [28 examples](https://www.progress.org/articles/where-a-tax-reform-has-worked) proving it.
 
 ### Concluding remarks
 People must be fortified to not be swayed by oppositional reductionist pathology so that focus may rest upon the source of all and also so that energy may not be diverted from the work through which folk actualize their purpose(s).
