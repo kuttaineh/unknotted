@@ -33,7 +33,7 @@ Let us be in a world where decisions aren't taxed unless those decisions involve
 Compliance with the dialectic results in a distractive fight for a needless monopoly of power. The benefits of land and labor become a prize for corporatists and socialists alike with the result remaining the same: the treatment of otherwise free beings as subjects to a chaining ideology.
 
 ## A shared inheritance
-To avoid war: we must recognize the Earth as our shared inheritance. An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
+To avoid war: we must recognize the Earth as [our shared inheritance](https://gist.github.com/kuttaineh/8b7830a1a3e0f10467b90cd3049424d4). An efficient gov't operates in accordance with the principle that each individual shall receive their share of this inheritance in perpetuity.
 
 ### Trade, Labor, and the Least Bad Tax
 So that people may be free, interstate and transnational trade must be free—meaning free of sales tax and imposed tariffs. Likewise, people's labor must also be unencumbered by taxation. Therefore, revenue must come via charges from that natural resource use which goes beyond any single or cooperative use past the inheritance share.
