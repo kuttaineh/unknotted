@@ -6,7 +6,7 @@ The big end is widespread human flourishing. Capital is one of the major tools t
 ### Dismantling barriers
 The barriers to work and hire, buy and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to [**natural resource use**](https://www.progress.org/articles/the-ethics-of-land-and-liberty) past an even share to witness three surprising benefits.
 
-### Governance by few and for all
+### Governance by few to none and for all
 Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
 
 ### How shall the social contract be defined?
