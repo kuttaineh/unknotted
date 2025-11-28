@@ -22,7 +22,7 @@ From where does the power to set and grow government come? As time progresses do
 In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is one where decisions are made at the most local competent level possible.
 
 ### Time management 
-How is a system of [so many working hours](https://everhour.com/blog/average-working-hours/) maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://archive.is/NTQW4) generations ago pointed out that by now we’d barely need to work 15 in order to maintain a decent standard of living?
+How is a system of [so many working hours](https://everhour.com/blog/average-working-hours/) maintained, with a normative virtue to work more without thinking of the consequences, after [the economist](https://archive.is/NTQW4) generations ago pointed out that by now we’d barely need to work 15 per week in order to maintain a decent standard of living?
 
 ### Choosing between death and life
 There exists an oppositional reductivist [dialectic](http://www.crossroad.to/articles2/05/dialectic.htm) which history proves useful for the purpose of dividing and ruling groups held subject to it. Disregarding the dialectic allows one to see, as the classic [moral philosophers](https://youtu.be/9TqJrvtt9ws) saw, the means to the material portion of civilized living as the combination of **natural resources**, **labor**, and **durable capital goods**. 
