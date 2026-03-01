@@ -4,20 +4,20 @@ _This document is addressed to those thinking about how to transition towards a 
 The big end is widespread human flourishing. Capital is one of the major tools to accomplish this. Therefore using wealth to create more wealth, which is then available, is part of [natural flow](https://gist.github.com/kuttaineh/e549ab7571ebd05c5d37166cf1abeade#file-natural_flow-money_backed_by_the_physical-md). In other words: recognizing and preserving the [profit motive](https://www.investopedia.com/terms/p/profit-motive.asp) is essential.
 
 ### Dismantling barriers
-The barriers to work and hire, buy and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to [**natural resource use**](https://www.progress.org/articles/the-ethics-of-land-and-liberty) past an even share to witness three surprising benefits.
+The barriers to work and hire, buy, and sell have become artificially too high. Shift taxes off incomes, personal property, & trade on to [**natural resource use**](https://www.progress.org/articles/the-ethics-of-land-and-liberty) past an even share of the raw value of the planet to witness three surprising benefits.
 
 ### Governance by few to none and for all
-Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's life by looking into securing the components necessary so that each is able to live a whole life in a thriving way.
+Plays for control and possession result in inefficiency, injury, and premature death. Instead, we can focus on the quality of everyone's lives by securing the components necessary so that each can live a whole life in a thriving way.
 
 ### How shall the social contract be defined?
 Governments are for establishing and maintaining order. States are about conferring privilege. If you doubt the last statement then, consider the lobbying industry. 
 
-In order to excise the major state enabled privilege that is [land monopoly](https://web.archive.org/web/20230307022403/http://www.wealthandwant.com/themes/Land_Monopoly.html): Recognize a new inherent right to an explicit portion of nature, the value thereof, or an equivalent combination of the two categories, universally. This would not only help to resolve particular territorial conflicts between people but would also enable the same to always have a fallback position in any negotiation. 
+In order to excise the major state-enabled privilege that is [land monopoly](https://web.archive.org/web/20230307022403/http://www.wealthandwant.com/themes/Land_Monopoly.html): Recognize a new inherent right to an explicit portion of nature, the value thereof, or an equivalent combination of the two categories, universally. This would not only help to resolve particular territorial conflicts between people but would also enable the same to always have a fallback position in any negotiation. 
 
 For the record: the idea above is proposed out of the tradition of classical, not social, liberalism — which is the historically philosophical basis to much of contemporary conservatism; see [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
 ## With regard to government
-From where does the power to set and grow government come? As time progresses does the locus of control remain with citizens: the families and communities they represent; or, does it migrate into the state enabled legal fictions which are corporations and unelected bureaucracies? 
+From where does the power to set and grow government come? As time progresses, does the locus of control remain with citizens: the families and communities they represent; or does it migrate into the state, enabled by legal fictions which are corporations and unelected bureaucracies? 
 
 In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k): the best government is one where decisions are made at the most local competent level possible.
 
