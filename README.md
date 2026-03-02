@@ -12,7 +12,7 @@ Plays for control and possession result in inefficiency, injury, and premature d
 ### How shall the social contract be defined?
 Governments are established to maintain order. States are about conferring privilege. If you doubt the last statement, then consider the lobbying industry. 
 
-To excise the major state-enabled privilege that is [land monopoly](https://web.archive.org/web/20230307022403/http://www.wealthandwant.com/themes/Land_Monopoly.html): Recognize a new inherent right to an explicit portion of nature, the value thereof, or an equivalent combination of the two categories, universally. This unalienable right would not only help to resolve particular territorial conflicts between people but would also enable anyone to always have a fallback position in any negotiation. 
+To excise the major state-enabled privilege that is [natural resource monopoly](https://web.archive.org/web/20230307022403/http://www.wealthandwant.com/themes/Land_Monopoly.html): Recognize a new inherent right to an explicit portion of nature, the value thereof, or an equivalent combination of the two categories, universally. This unalienable right would not only help to resolve particular territorial conflicts between people but would also enable anyone to always have a fallback position in any negotiation. 
 
 For the record: the idea above is proposed out of the tradition of classical, not social, liberalism — which is the historically philosophical basis to much of contemporary conservatism; see [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
