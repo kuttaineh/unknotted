@@ -54,7 +54,7 @@ Until the services can be funded via the aforementioned revenue sources, [FICA](
 The [full value](https://archive.is/p2jZb) of natural resources, beyond the inheritance share, and made private through extraction fees, resource lease agreements, and any actual pollution cleanup charges, has to be collected. Additionally, taxpayers must have an easy-to-use tool that enables them to track where their tax dollars go so that they can determine the appropriate size of government. 
 
 ## What are the proper roles of government and society?
-Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, except in cases where individuals are barred from work, shouldn't ensuring all individuals' economic opportunity be within the realm of individuals and societies, not the government? 
+Should how people make income, and the fact that they trade, be the business of any government of the people? Meanwhile, except in cases where individuals are barred from work, shouldn't ensuring all individuals' economic opportunity be within the realm of individuals-to-societies, not the government? 
 
 ### Working principles
 What's common doesn't need to be privatized. And what's private doesn't need to be socialized. [The rent](https://www.progress.org/articles/land-rent-as-a-tax) of natural resources, beyond the inheritance share, is the most just and economically best source of public income.
