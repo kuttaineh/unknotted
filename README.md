@@ -17,7 +17,7 @@ To excise the major state-enabled privilege that is [natural resource monopoly](
 For the record: the idea above is proposed out of the tradition of classical, not social, liberalism — which is the historically philosophical basis to much of contemporary conservatism; see [Classical Liberalism, Explained](https://youtu.be/iU-8Uz_nMaQ).
 
 ## With regard to government
-From where does the power to set and grow government come? As time progresses, does the locus of control remain with citizens: the families and communities they represent; or does it migrate into the state, enabled by legal fictions which are corporations and unelected bureaucracies? 
+From where does the power to set and grow government come? As time progresses, does the locus of control remain with citizens: the families and communities they represent; or does it migrate into the state-enabled legal fictions which are corporations and unelected bureaucracies? 
 
 In accordance with the principle of [Subsidiarity](https://youtu.be/GD0moAiq22k), the best government is one in which decisions are made at the most local, competent level possible.
 
